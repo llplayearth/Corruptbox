@@ -8,7 +8,7 @@ Corruptbox 1 is the inaugural mod in the series, reimagining Incredibox's charac
 
 ## Corruptbox 2: Expanding the Digital Horror Ambiance
 
-Building upon its predecessor, Corruptbox 2 introduces additional corrupted characters and more intricate sound effects. Players can explore new sound combinations, delving deeper into the digital horror ambiance. This installment further enhances the eerie atmosphere with its new character designs and unique sonic elements. It's a direct continuation of the Corruptbox journey, pushing the boundaries of the original mod. The focus is on creating a more layered and immersive experience. **Explore the digital horror ambiance! Click here to play [Corruptbox](https://corruptboxs.com) 2:**
+Building upon its predecessor, Corruptbox 2 introduces additional corrupted characters and more intricate sound effects. Players can explore new sound combinations, delving deeper into the digital horror ambiance. This installment further enhances the eerie atmosphere with its new character designs and unique sonic elements. It's a direct continuation of the Corruptbox journey, pushing the boundaries of the original mod. The focus is on creating a more layered and immersive experience! **Explore the digital horror ambiance! Click here to play [Corruptbox](https://corruptboxs.com) 2:**
 
 ## Corruptbox 3: Intensifying the Glitch Aesthetics and Eerie Soundscapes
 
