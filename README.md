@@ -14,17 +14,17 @@ Building upon its predecessor, Corruptbox 2 introduces additional corrupted char
 
 The third installment, Corruptbox 3, intensifies the glitch aesthetics and eerie soundscapes. Players enter a corrupted digital realm where all characters are redesigned with twisted appearances and unsettling animations, accompanied by dark, static-like tones that enhance the haunting atmosphere. It's the most extreme iteration of the core Corruptbox concept, pushing the boundaries of the visual and auditory experience. This mod aims to create a truly unsettling and immersive atmosphere. **Experience the intense glitch aesthetics! Play [Corruptbox](https://corruptboxs.com) 3 online:**
 
-## Corruptbox 1 but Sprunki: A Chaotic Crossover of Glitch and Charm
+## Sprunki Corruptbox 1: A Chaotic Crossover of Glitch and Charm
 
-*Corruptbox 1 but Sprunki* is the first crossover mod between [Corruptbox](https://corruptboxs.com) and Sprunki. It merges Corruptbox's glitch aesthetics with Sprunki's musical charm, creating a chaotic and captivating music-making experience. This mod introduces a unique twist, combining two distinct visual and sonic styles to create a fresh and intriguing experience. It's a bold experiment that explores the intersection of two different fan-created worlds. **Witness the chaotic crossover! Play [Corruptbox 1 but Sprunki](https://corruptboxs.com) here:**
+*Sprunki Corruptbox 1* is the first crossover mod between [Corruptbox](https://sprunkicorruptbox.app) and Sprunki. It merges Corruptbox's glitch aesthetics with Sprunki's musical charm, creating a chaotic and captivating music-making experience. This mod introduces a unique twist, combining two distinct visual and sonic styles to create a fresh and intriguing experience. It's a bold experiment that explores the intersection of two different fan-created worlds. **Witness the chaotic crossover! Play [Sprunki Corruptbox 1](https://sprunkicorruptbox.app) here:**
 
-## Corruptbox 2 but Sprunki: Blending Eerie Atmosphere with Distinctive Style
+## Sprunki Corruptbox 2: Blending Eerie Atmosphere with Distinctive Style
 
-*Corruptbox 2 but Sprunki* builds upon the previous crossover, further blending Corruptbox's eerie atmosphere with Sprunki's distinctive style. Players encounter more corrupted character designs and twisted sound effects, challenging their creative abilities. This installment aims to refine the crossover experience by introducing more complex and varied elements. It's a progression of the combined vision, offering more challenges and creative possibilities. **Blend the eerie and the charming! Click here to play [Corruptbox 2 but Sprunki](https://corruptboxs.com):**
+*Sprunki Corruptbox 2* builds upon the previous crossover, further blending Corruptbox's eerie atmosphere with Sprunki's distinctive style. Players encounter more corrupted character designs and twisted sound effects, challenging their creative abilities. This installment aims to refine the crossover experience by introducing more complex and varied elements. It's a progression of the combined vision, offering more challenges and creative possibilities. **Blend the eerie and the charming! Click here to play [Sprunki Corruptbox 2](https://sprunkicorruptbox.app/sprunki-corruptbox/2):**
 
-## Corruptbox 3 but Sprunki: A Corrupted Digital World with Twisted Characters
+## Sprunki Corruptbox 3: A Corrupted Digital World with Twisted Characters
 
-*Corruptbox 3 but Sprunki* is the third installment in the Corruptbox and Sprunki crossover series. In this corrupted digital world, all Sprunki characters are redesigned with twisted appearances, glitch effects, and unsettling animations. The audio features dark, static-like tones, adding a chilling ambiance to each composition. This mod is the culmination of the crossover series, bringing together the most intense versions of both Corruptbox and Sprunki elements. It’s a fully immersive and haunting musical experience. **Dive into the corrupted world! Play [Corruptbox 3 but Sprunki](https://corruptboxs.com) now!**
+*Sprunki Corruptbox 3* is the third installment in the Corruptbox and Sprunki crossover series. In this corrupted digital world, all Sprunki characters are redesigned with twisted appearances, glitch effects, and unsettling animations. The audio features dark, static-like tones, adding a chilling ambiance to each composition. This mod is the culmination of the crossover series, bringing together the most intense versions of both Corruptbox and Sprunki elements. It’s a fully immersive and haunting musical experience. **Dive into the corrupted world! Play [Sprunki Corruptbox 3](https://sprunkicorruptbox.app/sprunki-corruptbox/3) now!**
 
 ## A Comparative Look at the Corruptbox Universe
 
